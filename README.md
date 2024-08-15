@@ -1,6 +1,6 @@
 # **Bem vindo a meu perfil 🖤**
 
--Meu nome é Felipe
+- Meu nome é Felipe Gomes
 
 ## _Hi, man 💪_
 ### Tudo bem ?
