@@ -6,7 +6,8 @@
 ### Tudo bem ?
 
 - _Estou no 1 ANO_
-
+- 🇧🇷
+  _______________
 
 - **Meu contato 📫**
 
